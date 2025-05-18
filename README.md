@@ -35,9 +35,8 @@ Somos uma equipe com experiência comprovada em projetos nacionais e internacion
 Entre em contato para uma avaliação gratuita:
 
 - ✉️ Email: contato@consultoriadadossegura.com
-- 🌐 Site: [www.consultoriadadossegura.com](https://www.consultoriadadossegura.com)
-- 📱 LinkedIn: [linkedin.com/company/consultoriadadossegura](https://linkedin.com)
-
+- 🌐 Site:
+- 📱 LinkedIn:
 ---
 
 > “Dados são o novo petróleo. Segurança é o novo seguro.”
