@@ -34,7 +34,7 @@ Somos uma equipe com experiência comprovada em projetos nacionais e internacion
 
 Entre em contato para uma avaliação gratuita:
 
-- ✉️ Email: contato@consultoriadadossegura.com
+- ✉️ Email:
 - 🌐 Site:
 - 📱 LinkedIn:
 ---
